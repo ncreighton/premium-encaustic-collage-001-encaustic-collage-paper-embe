@@ -1,0 +1,2 @@
+# premium-encaustic-collage-001-encaustic-collage-paper-embe
+Tired of scattered notes, lost inspiration photos, and chaotic project files drowning your encaustic and collage workflow? The Encaustic Collage &amp; Paper Embed Craft Hub is your all-in-one Notion workspace designed specifically for artists who blend wax, paper, and mixed media.  This isn't just another generic craft template—it's purpose-built for e
